@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mayye172
+- 👀 I’m interested in: learning web design 
+- 🌱 I’m currently learning: computer science and mathmatics
+- 💞️ I’m looking to collaborate on: simple (student level) projects
+- 📫 How to reach me: maydaynes@gmail.com
